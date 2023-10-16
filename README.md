@@ -1,4 +1,6 @@
+Git is too difficult for me 
 
+oct 16, 1:45pm 
 
 sorry
 
